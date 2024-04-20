@@ -1,1 +1,0 @@
-# vgcoin.github.io
